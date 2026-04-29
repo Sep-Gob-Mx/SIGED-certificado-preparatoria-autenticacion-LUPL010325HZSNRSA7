@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LUPL010325HZSNRSA7
+LUPL010325HZSNRSA7
